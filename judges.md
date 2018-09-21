@@ -13,6 +13,12 @@
 
 ## 2
 
+- The angel of the Lord said that b/c Cannanites not driven out, they will be a thorn in the side
+- Joshua dies, is buried at Ephraim and another generation grows up who doesn't know the Lord
+- The people of Israel worshiped idols - Baal and Ashtaroth - and the Lord's gave them over to enemies
+- The Lord stays; he raises up Judges to help deliver the people
+- The Lord leaves the foreigners in their midst to test their allegience
+
 ## 3
 
 ## 4
