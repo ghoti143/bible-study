@@ -5,7 +5,7 @@
 - Genesis
 - Exodus
 - Joshua
-- Judges
+- [Judges](judges.md)
 - 1 Samuel 
 - 2 Samuel
 - 1 Kings
