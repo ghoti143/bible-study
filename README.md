@@ -1,6 +1,6 @@
 # Bible Study
 
-### 1 sentence summaries of each chapter from the narrative books:
+### Bullet point summaries of each chapter from the narrative books:
 
 - Genesis
 - Exodus
