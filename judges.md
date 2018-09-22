@@ -21,6 +21,17 @@
 
 ## 3
 
+- Listing of the nations that were left in the land
+- God left them there to teach war to the next generation and for their testing
+- They gave their daughters to foreigners and vice-a-versa
+- Israelites worshiped false gods
+- The Lord gave them into King Cushan's hands; 8 years; people repented and cried out
+- God raised up Othniel to defeat Cushan
+- Again, false gods; Elgud the Moabite; 18 years; repentance
+- God raises up Ehud; Ehud thusts sword into belly of Elgud
+- Ehud leads rebellion; 10,00 Moabites killed; peace for 80 years
+- Next is Shamgar; he killed 600 Philistines; also saved Israel
+
 ## 4
 
 ## 5
