@@ -34,6 +34,14 @@
 
 ## 4
 
+- After Ehud dies, the people again do evil
+- God gives them into the hands of Jabin, King of Canaan
+- Israel asked Judge Deborah for advice; she summons Barak and shares a prophetic word
+- Word: gather 10k men from Naphtali and Zebulon to fight Sisera, general of Jabin; Sisera will lose
+- Barak and his men defeat Sisera's army but Sisera flees
+- Sisera fled to a Kenite's wife and she tricked him into staying in her tent and killed him with a tent peg to the skull
+- Barak recovered Sisera in the Kenite camp; Israel ultimately defeated Jabin
+
 ## 5
 
 ## 6
