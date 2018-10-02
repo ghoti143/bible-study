@@ -13,11 +13,11 @@
 
 ## 2
 
-- The angel of the Lord said that b/c Cannanites not driven out, they will be a thorn in the side
-- Joshua dies, is buried at Ephraim and another generation grows up who doesn't know the Lord
-- The people of Israel worshiped idols - Baal and Ashtaroth - and the Lord's gave them over to enemies
-- The Lord stays; he raises up Judges to help deliver the people
-- The Lord leaves the foreigners in their midst to test their allegience
+- The angel of the LORD said that b/c Cannanites not driven out, they will be a thorn in the side
+- Joshua dies, is buried at Ephraim and another generation grows up who doesn't know the LORD
+- The people of Israel worshiped idols - Baal and Ashtaroth - and the LORD gave them over to enemies
+- The LORD stays; he raises up Judges to help deliver the people
+- The LORD leaves the foreigners in their midst to test their allegience
 
 ## 3
 
@@ -25,7 +25,7 @@
 - God left them there to teach war to the next generation and for their testing
 - They gave their daughters to foreigners and vice-a-versa
 - Israelites worshiped false gods
-- The Lord gave them into King Cushan's hands; 8 years; people repented and cried out
+- The LORD gave them into King Cushan's hands; 8 years; people repented and cried out
 - God raised up Othniel to defeat Cushan
 - Again, false gods; Elgud the Moabite; 18 years; repentance
 - God raises up Ehud; Ehud thusts sword into belly of Elgud
@@ -43,6 +43,16 @@
 - Barak recovered Sisera in the Kenite camp; Israel ultimately defeated Jabin
 
 ## 5
+
+- Barak and Deborah rejoice by singing a song
+- ♫ The leaders led and the mountains quaked at the presence of the LORD ♫
+- ♫ The LORD has done righteous things for the peasentry in Israel ♫
+- ♫ Awake, Deborah, sing; lead the captives away, Barak ♫
+- ♫ Naphtali and Zebulon fought bravely, but Reuben and Dan declined to fight ♫
+- ♫ Curse Meroz said the Angel of the LORD because they didn't fight ♫
+- ♫ Blessed is Jael because she pierced Sisera's head with a tent peg ♫
+- ♫ Let all your enemies perish, LORD, but let those who love you be like the rising of the sun ♫
+- 40 years of peace
 
 ## 6
 
