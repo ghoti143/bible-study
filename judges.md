@@ -56,6 +56,17 @@
 
 ## 6
 
+- People again did evil; God gave them into Midian's hand for 7 years
+- Israelites made dens in caves because of Midianite pillage; they cried to the LORD for help
+- God reminds Israel of his deliverance from Egypt; I am the LORD your God, but you have not obeyed my voice
+- God calls Gideon to defeat Midian, but Gideon doubts: weak ancestry and weakest of his family
+- Asking for a sign, Gideon prepares food and places it on a rock
+- The angel of the LORD consumes it with fire and vanishes
+- Gideon obeys the LORD's demand to destroy his father's altar of Baal and Asherah pole
+- Joash defends his son Gideon against the townsmen; let Baal contend for himself
+- Gideon, clothed with the Holy Spirit gathers followers from Manasseh
+- Gideon tests the LORD twice via the fleece to make sure God is with him; twice the fleece is wet
+
 ## 7
 
 ## 8
