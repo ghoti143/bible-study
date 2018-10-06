@@ -73,9 +73,18 @@
 - God promises to give the Midianites into his hand with only 300 men
 - Gideon descends into Midian where there are people and camels a plenty; overhears a man telling about a dream that’s interpreted as Gideon’s conquest
 - Gideon returns to Israeli camp joyful and tells men to follow him and blow trumpets while encircling Midian - “For the LORD and Gideon”
-- The Midiantes flee but Israel captures the two kings
+- The Midiantes flee but Israel captures two Princes: Oreb and Zeeb
 
 ## 8
+
+- Gideon pursues the Midianite Kings: Zebah and Zalmunna
+- As he passes through two towns that wont give bread to his men; he promises revenge
+- After capturing Midiante kings, Gideon returns to Succoth and Penuel to take revenge by beating and killing men and tearing down their tower
+- Gideon kills Zebah and Zalmunna
+- Israel wants to make Gideon king; he refuses but instead asks for all their gold earrings
+- Gideon makes an Ephod out of the gold in his city, Ophrah; all of Israel whores after it
+- Gideon dies of old age and is buried in the tomb of his father Joash
+- Israel forgets God’s deliverance and worships Baal-berith and whores after Baals
 
 ## 9
 
