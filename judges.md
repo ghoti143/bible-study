@@ -69,7 +69,11 @@
 
 ## 7
 
-- foo
+- Gideon has tens of thousands of men but God sends most of them home
+- God promises to give the Midianites into his hand with only 300 men
+- Gideon descends into Midian where there are people and camels a plenty; overhears a man telling about a dream that’s interpreted as Gideon’s conquest
+- Gideon returns to Israeli camp joyful and tells men to follow him and blow trumpets while encircling Midian - “For the LORD and Gideon”
+- The Midiantes flee but Israel captures the two kings
 
 ## 8
 
