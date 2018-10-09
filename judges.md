@@ -92,7 +92,13 @@
 - Abimelech went to his father's house at Ophrah and killed all his brothers - 70 men on a single stone
 - Jotham, the youngest, escaped; he told Israel: if you acted in good faith, then rejoice in Abimelech
 - If you have not acted in good faith, Jotham says, may fire devour Abimelech
-- v 22
+- People of Shechem dealt treacherously with Abimelech.
+- Gaal asks why Shechem is serving Abim; Gaal wants to overthrow him
+- City ruler Zebul gets upset and secretly tells Abim about Gaal’s plot
+- Abim ambushed Gaal and he and his relatives were driven out from Shechem.
+- Abim captured Shechem and raised city
+- Abim went to Thebez and captured it; a woman tossed a millstone on him from up in a tower
+- Abim asked his armor-bearer to kill him so that his legacy wouldn’t be that he was killed by a woman.
 
 
 ## 10
