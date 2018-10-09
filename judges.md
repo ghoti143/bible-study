@@ -88,6 +88,13 @@
 
 ## 9
 
+- Abimelech was son of Jerubbaal; he went to Shechem and asked his relatives to make him king
+- Abimelech went to his father's house at Ophrah and killed all his brothers - 70 men on a single stone
+- Jotham, the youngest, escaped; he told Israel: if you acted in good faith, then rejoice in Abimelech
+- If you have not acted in good faith, Jotham says, may fire devour Abimelech
+- v 22
+
+
 ## 10
 
 ## 11
