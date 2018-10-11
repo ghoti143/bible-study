@@ -103,6 +103,12 @@
 
 ## 10
 
+- Tola judged Israel for 23 years and Jair judged for 22 years
+- Israel again worshiped foreign gods and were given into the hands of the Philistines and Ammonites
+- Israel cried out to the LORD.  God reminds them of all he has rescued them from: Egypt, Amorites, Ammonites, Philistines, Sidonians, Amalekites, Maonites
+- God tells them to cry out to their falses gods to see if they can save them
+- Israel repents and puts away their foregin gods
+
 ## 11
 
 ## 12
