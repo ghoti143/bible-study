@@ -111,6 +111,13 @@
 
 ## 11
 
+- Jepthah, the son of Gilead and a prostitute, was forced out of his fathers house by his brothers
+- When under siege from the Ammonites, Gilead elders ask Jephthah to lead the charge and promise him to be their leader if he wins
+- The Ammonites want to make war because Israel took their land
+- Jephthah replies: no, the Lord dispossessed the Amorites from the land and the Israelites took it
+- Jephthah made vow: if God gives Ammonites into my hand then first thing out of my door will be offered as burnt offering
+- Jephthah defeats Ammonites but then his daughter is first to greet him; he tears his clothes and proceeds to keep his vow
+
 ## 12
 
 ## 13
