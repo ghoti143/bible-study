@@ -120,6 +120,13 @@
 
 ## 12
 
+- Men of Ephraim were curious why Jephthah fought the Ammonites without their help
+- Jephthah said you bailed on us and I had to fight them myself, so he fought them and took over their fords.
+- When Ephraimites tried to cross Jordan they failed language test: “Shibboleth” and were killed; 42,000 Ephraimites died.
+- Jephthah judged for 6 years and is buried in Gilead.
+- Next, Ibzan of Bethleham judged for 7 years.  He gave his 30 sons to foriegners and his 30 daughters to foreigners.
+- Then Elon, and Abdom judged.
+
 ## 13
 
 ## 14
