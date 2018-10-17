@@ -129,6 +129,15 @@
 
 ## 13
 
+- Israel sinned; 40 years in Philistine hands
+- Manoah and wife had no children; she was barren; angel of the LORD appeared and said you will bear a son
+- The angel said to abstain from strong drink and unclean animals b/c son would be Nazirite from birth
+- Manoah prayed and asked God to send man of God to them again to tell them what to do
+- Angel appeared again and reiterated what he said about no strong drink or unclean thing
+- Manoah and wife want to honor angel, but he deflects; instead make burnt offering to God
+- Angel ascends with flame of the alter; Manoah and wife fall on their faces to the ground
+- The woman bore a son; they called him Samson; the Spirit of the LORD began to stir him in Mahaneh-dan
+
 ## 14
 
 ## 15
