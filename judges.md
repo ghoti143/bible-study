@@ -140,6 +140,16 @@
 
 ## 14
 
+- Samson picks Philistine as bride; parents ask why he doesn’t pick from among circumcised
+- This was from the LORD as a means to gain advantage of Philistines who were opreaaing Israel
+- Samson went to Timnah where a young lion came at him roaring; the Spirit of the LORD came upon him and he tore the lion to pieces with his bare hands
+- Samson returned to Timnah to take his bride and he grabbed some honey from the lion carcass and gave it to his parents
+- Samson tells a riddle to the 30 Philistine wedding guests and makes a bet - “out of the eater came something to eat; out of the strong came something sweet”
+- Guests couldnt guess riddle to they ask Samson’s wife to persuade him to disclose so they wouldn’t be bankrupt
+- The guests guess the riddle (thanks to Samson’s wife) and then the Spirit of the LORD comes upon Samson and he kills them and takes their spoils
+- Samson’s wife was given to his best man
+
+
 ## 15
 
 ## 16
