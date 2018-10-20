@@ -152,6 +152,12 @@
 
 ## 15
 
+- Samson learns that his wife was given to another so he ties torches to fox tails and sets them loose amomg grain fields
+- Philistines kill the Timnite and his daughter (Samson’s wife) because of this
+- Philistines attack Lehi because they are looking for Samson; Lehi says they will capture Samson and deliver him to Philistines
+- When Philistines came to get Samson, the Spirit of the LORD came upon him and his ropes were broken amd he picked up a jawbone of a donkey and struck down 1000 men
+- Samson was thirsty and asked God for water so a rock was split open and water came out
+
 ## 16
 
 ## 17
