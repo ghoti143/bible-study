@@ -160,6 +160,13 @@
 
 ## 16
 
+- Samson loved a woman named Delilah
+- She asked him how to nullify his strength and bind him
+- Samson lied to her multiple times about how to bind him
+- Finally he told her about his Nazarite vow from birth and how shaving his head would nullify his strength
+- Diliah shaved his head and he was bound and captured by Philistines
+- Samson prayed and asked God to restore his strength one more time so he could knock the pillars of a house down; he killed more people in that event than in the rest of his life
+
 ## 17
 
 ## 18
