@@ -169,6 +169,12 @@
 
 ## 17
 
+- A man named Micah from Ephraim confessed to taking 1,100 pieces of silver from his mother
+- His mother blessed him and restored the silver to him
+- Micah took some of the silver and made an idol and added it to other household gods and ordained his son as a priest.
+- In those days there was no king; everyone did what was right in their own eyes
+- A Levite came along looking for a place to stay and Micah gave his a job as priest in exchange for 10 pieces of silver per year and a suit of clothes 
+
 ## 18
 
 ## 19
