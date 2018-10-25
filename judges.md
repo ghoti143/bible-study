@@ -177,6 +177,13 @@
 
 ## 18
 
+- The Danites were looking for land and five scouts happened upon the Levite in the hill country of Ephraim; he said their journey was blessed by God
+- The five reported back to their brothers and encouraged them to attack and possess the land of Ephraim
+- 600 from the tribe of Dan attacked and came to the house of Micah
+- They plundered Micah's household gods and ephod, and convinced the Levite to come with them and be their priest
+- People from Micah's region overtook the people of Dan but decided not to fight them due to their numbers
+- People of Dan conquered the city of Laish and renamed it Dan; they setup the carved image and Jonathan (son of Gershom) and his sons were Danite priests until the day of captivity
+
 ## 19
 
 ## 20
