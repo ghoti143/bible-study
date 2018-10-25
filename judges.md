@@ -186,6 +186,14 @@
 
 ## 19
 
+- A Levite took a concubine but she left him and went to live with her father
+- The Levite found her and stayed a few days at her father’s house
+- They left in the middle of the night and traveled to Gibeah and stayed the night in the middle of the town square as nobody took them in
+- An old man saw them and took them in
+- As they were making merry, a group of Gibeah men came and wanted to violate the man; the old man instead offered his virgin daughter and the concubine
+- The men abused the concubine all night long
+- The man tried to rouse his concubine in the morning but there was no answer so he divided her body into 12 pieces and sent it all throughout Israel
+
 ## 20
 
 ## 21
