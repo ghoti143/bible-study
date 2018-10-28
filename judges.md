@@ -202,3 +202,10 @@
 - There were multiple battles; Tens of thousands died on both sides
 
 ## 21
+
+- Men if Israel swear not to give any daughters in marriage to Benjamin
+- There was an assembly and they had compassion of Benjamin
+- Because Jabesh-gilead wasn’t assembled, they sent warriors to slay all men and non-virgin women
+- Israel made peace with Benjamin and gave them the virgins from Jabesh-gilead
+- They snatch other women from Shiloh when they dance in the vineyard
+- In thise days there was no king in Israel. Everyone did what was right in his own eyes
