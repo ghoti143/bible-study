@@ -196,4 +196,9 @@
 
 ## 20
 
+- All the people of Israel want to know how this evil happened; the Levite told the story
+- The men of Israel decide to go to Gibeah
+- They ask for the offenders to be brought out but the Benjaminites wouldn’t listen
+- There were multiple battles; Tens of thousands died on both sides
+
 ## 21
