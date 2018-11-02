@@ -17,3 +17,13 @@
 - A man of God comes to Eli and God rebukes him; God has given great blessings to Eli's father's house but they have dishonored him
 - God says Hophni and Phinehas will die as a sign of God's rebuke
 - God promises to raise up a faithful priest who will go in and out before His anointed forever.
+
+## 3
+- Samuel is sleeping next to the Ark of God; the LORD keeps calling Samuel
+- Samuel goes into Eli and says Here I am; Eli perceived that the LORD was calling Samuel
+- Samuel answered the LORD and said Speak your servant hears
+- The LORD tells Samuel that his plan is about to come to pass; that Eli's house and sons will be overthrown
+- Sameul was afraid to tell the vision to Eli
+- Eli convinced Samuel to tell him the vision; he said it is the LORD'; let Him do what seems good to Him
+- Samuel grew and treasured God's word; all of Israel knew that Samuel was a prophet
+- The LORD revealed himself to Samuel at Shiloh
