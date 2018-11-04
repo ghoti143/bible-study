@@ -27,3 +27,10 @@
 - Eli convinced Samuel to tell him the vision; he said it is the LORD'; let Him do what seems good to Him
 - Samuel grew and treasured God's word; all of Israel knew that Samuel was a prophet
 - The LORD revealed himself to Samuel at Shiloh
+
+## 4
+- Israel went to battle against Philistines
+- Israel lost so they decided to bring the Ark from Shiloh; they shouted when it arrived in the camp
+- Israel was defeated again; the Philistines captured the ark; Eli’s sons died
+- When Eli was told of what happened he fell over backwards and died; he had judged Israel for 40 years
+- His daughter in law gave birth when she heard that her husband was dead and the ark captured; she named her child Ichabod because “the glory has departed from Israel”
