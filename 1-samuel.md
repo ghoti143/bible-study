@@ -34,3 +34,9 @@
 - Israel was defeated again; the Philistines captured the ark; Eli’s sons died
 - When Eli was told of what happened he fell over backwards and died; he had judged Israel for 40 years
 - His daughter in law gave birth when she heard that her husband was dead and the ark captured; she named her child Ichabod because “the glory has departed from Israel”
+
+## 5
+- The Philistines set the Ark next to Dagon in Ashdod.
+- Dagon kept falling down next to the Ark; the people of Ashdod were afflicted with boils
+- They sent the Ark to Gath; those people were also afflicted with sores
+- They decided to return the Ark because the hand of God was heavy with them
