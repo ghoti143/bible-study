@@ -40,3 +40,12 @@
 - Dagon kept falling down next to the Ark; the people of Ashdod were afflicted with boils
 - They sent the Ark to Gath; those people were also afflicted with sores
 - They decided to return the Ark because the hand of God was heavy with them
+
+## 6
+- The Philistine priests instruct to return the Ark with 5 golden tumors and 5 golden mice; perhaps He will lighten His hand b/c of this
+- Don't harden your heart like Pharoh instruct the Philistine priests
+- They instruct to set the Ark on an unmaned cow cart along with the golden images and set it off
+- The cart went directly to Beth-shemesh to Joshua's field; the Israelites burned the cart and the cows as an offering of thanksgiving
+- The golden tumors represent Ashdod, Gaza, Ashkelon, Gath, and Ekron; the five Philistine cities belonging to the great Philistine lords.
+- The stone beside which the Ark was unloaded stands witness in Joshua's field
+- God struck 70 men of Beth-shemesh who looked upon the ark; they told Kiriath-jearim to come get the ark
