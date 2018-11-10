@@ -49,3 +49,13 @@
 - The golden tumors represent Ashdod, Gaza, Ashkelon, Gath, and Ekron; the five Philistine cities belonging to the great Philistine lords.
 - The stone beside which the Ark was unloaded stands witness in Joshua's field
 - God struck 70 men of Beth-shemesh who looked upon the ark; they told Kiriath-jearim to come get the ark
+
+## 7
+- Kiriath-jearim received the ark; they consecrated Eleazar to have charge of it; for 20 years they lamented after the LORD
+- Samuel told Israel to put away Baals and Ashtaroth if they intend to return to the LORD
+- The Israelites gathered at Mizpah and Samuel prayed for them; they drew water and poured it out before LORD and confessed their sins
+- Samuel made a burnt offering sacrifice from a young lamb
+- The Philistines tried to attack but God threw them into confusion and they were defeated
+- Samuel setup a stone and called it Ebenezer because “till now the Lord has helped us”
+- The hand of the Lord was against Philistine all of Samuels days and lands were returned
+- Samuel judges Israel all his days, went on circuit tours around the cities and built an alter in his hometown of Ramah
