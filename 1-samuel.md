@@ -59,3 +59,15 @@
 - Samuel setup a stone and called it Ebenezer because “till now the Lord has helped us”
 - The hand of the Lord was against Philistine all of Samuels days and lands were returned
 - Samuel judges Israel all his days, went on circuit tours around the cities and built an alter in his hometown of Ramah
+
+## 8
+- In his old age, Samuel made his sons judges over Israel but they were unrighteous judges
+- The elders of Israel asked Samuel to appoint a king; this displeased Samuel
+- God told Samuel to obey the people; they have not rejected Samuel but God as their king
+- Samuel relays God’s message to Israel about the king they will receive: he will be a slavedriver and will heavily tax the people
+- When the people cry out for help, God will not answer them
+- The people didn’t obey Samuel’s voice and insisted on having a king; God tells Samuel to make them a king
+- Samuel tells the men of Israel to return to their own cities
+
+## 9
+- 
