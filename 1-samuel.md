@@ -70,4 +70,10 @@
 - Samuel tells the men of Israel to return to their own cities
 
 ## 9
-- 
+- There was a Benjaminite named Kish who had a very handsome son named Saul
+- Saul went looking for his father lost donkeys and ended up in Zuph where there he and his companion went to visit a seer
+- They see the seer/prophet; it’s Samuel
+- The previous day God had revealed to Samuel that he would send a man of Benjamite who should be annointed prince
+- When Samuel saw Saul God said: this is he
+- Saul stays the night at Samuels house; he is surprised at his treatment because he is from Benjamin - the lowest of the tribes
+- In the morning, Samuel tells Saul that he has a word from God for him
