@@ -77,3 +77,13 @@
 - When Samuel saw Saul God said: this is he
 - Saul stays the night at Samuels house; he is surprised at his treatment because he is from Benjamin - the lowest of the tribes
 - In the morning, Samuel tells Saul that he has a word from God for him
+
+## 10
+- Samuel anointed Saul with oil and told him the Lord has anointed him to be prince over Israel
+- Samuel tells Saul that he will see three specific men at the oak of Tabor as a confirmation; he will then meet with prophets at Gibeath-elohim and the Spirit of the LORD will rush upon him
+- God gave Saul another heart and all these things came to pass
+- Saul told his uncle about meeting Samuel and that the donkeys were found but didn't mention anything about being made king
+- Samuel called the people together at Mizpah; thus says the LORD: "delivered you from Egyptians, but today you've rejected your God and asked for a king therefore gather before the LORD by your tribes"
+- Samuel brought all the tribes near and Saul was chosen by lot but wasn't to be found
+- Saul was hiding amoung the baggage; Samuel presented him and the people said "long live the king"
+- Samuel wrote a book about the rights and duties of the kingship
