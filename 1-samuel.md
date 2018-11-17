@@ -87,3 +87,20 @@
 - Samuel brought all the tribes near and Saul was chosen by lot but wasn't to be found
 - Saul was hiding amoung the baggage; Samuel presented him and the people said "long live the king"
 - Samuel wrote a book about the rights and duties of the kingship
+
+## 11
+- Nahash the Ammonite fought against Jabesh-gilead; Nahash said that if they gouge their eyes out he will make a treaty with them
+- Messengers reported this to Saul and the Spirit of the God rushed upon him and spread a ox pieces all throughout Israel
+- Saul said that whoever doesn't help defeat the Ammonites will have the same done to his oxen
+- Knowing their salvation was near, the men of Jabesh said to the Ammonites that they would surrender but Saul's army struck them down
+- The Israelites wanted to kill those who doubted Saul's reign but Saul said no death today; God has saved us.
+- They all went to Gilgal and annoited Saul and sacrificed peace offerings.
+
+## 12
+- Samuel asks if he has defrauded or oppressed anyone; the people say no
+- Samuel reminds the people how the LORD brought them out of Egypt, but they forgot Him; they were captured but God delivered them; when Nahash came against them they asked for a king instead of God
+- God has given them the king they asked for; if they fear the LORD and serve him, it will be well; if they rebel, the hand of the LORD will be against them and their king
+- God told Samuel to call upon him to send thunder and rain as a sign their wickedness in asking for a king is great; Samuel calls and God answers; the people fear God and Samuel
+- The people ask Samuel to pray that we may not die because of our wickedness in asking for a king
+- Samuel says do not be afraid; you have done evil but if you do not turn aside from following the LORD, God will not forsake his people for his great name's sake
+- Samuel promised to not cease praying for them
