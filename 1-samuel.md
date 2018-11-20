@@ -104,3 +104,21 @@
 - The people ask Samuel to pray that we may not die because of our wickedness in asking for a king
 - Samuel says do not be afraid; you have done evil but if you do not turn aside from following the LORD, God will not forsake his people for his great name's sake
 - Samuel promised to not cease praying for them
+
+## 13
+- Saul mustered troops to fight against the Philistines
+- Saul made an unlawful burnt sacrifice and peace sacrifice
+- Samuel chided Saul for making an unlawful sacrifice and told him that God would remove the kingdom from him
+- The Philistines surround Israel and the Israelites don't have any weapons
+
+## 14
+- Saul's son Jonathan and his armor bearer kill 20 Philistines
+- There was confusion among the Philistines and God saved Israel
+- Saul makes a vow to Israel: "cursed be the man who eats food until evening and I am avenged on my enemies"
+- Jonathan didn't hear the vow and ate some honey; he said his father troubled Israel
+- The people ate animal blood; Saul said don't sin against the Lord by eating blood; he built an alter
+- Saul asked the Lord if they should attack the Philistines but he heard no reply
+- Saul asked if it was his or Jonathan's sin that is causing God's silence; the lots were cast and Jonathan was found guilty
+- Saul asked Jonathan what he did and Jonathan told him about eating the honey
+- The people ransomed Jonathan so he didn't die
+- There was hard fighting against the Philistines all the days of Saul
