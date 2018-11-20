@@ -6,7 +6,7 @@
 - Exodus
 - Joshua
 - [Judges](judges.md)
-- 1 Samuel 
+- [1 Samuel](1-samuel.md) 
 - 2 Samuel
 - 1 Kings
 - 2 Kings
