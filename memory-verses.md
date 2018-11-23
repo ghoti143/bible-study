@@ -14,4 +14,4 @@ And this word is the good news that was preached to you.
 
 5 Your steadfast love, O LORD, extends to the heavens, your faithfulness to the clouds. 
 6 Your righteousness is like the mountains of God; your judgments are like the great deep; man and beast you save, O LORD. 
-7 How precious is your steadfast love, O God! The children of mankind take refuge in the shadow of your wings.  - Psalm 36:5-7
+7 How precious is your steadfast love, O God! The children of mankind take refuge in the shadow of your wings.
