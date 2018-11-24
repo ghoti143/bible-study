@@ -135,4 +135,11 @@
 
 ## 16
 
+- The Lord said to Samuel to go to Jesse the Bethlehamite because he has chosen one of his sons to be king
+- Samuel was instructed to go to Bethleham and offer sacrifice and invite Jesse to join
+- “The Lord sees not as man sees. Man looks at outward appearance; the Lord looks upon the heart”
+- All of Jesses soms pass before Samuel but none of them are the annointed; Jesse brought his youngest som who was ruddy and had beautiful eyes and was handsome.
+- Samuel took the horn of oil and annojnted David and the Spirit of the Lord rushed upon him; Samuel went to Ramah.
+- The Lord removed his Spirit from Saul and sent a harmful spirit to torment him; Saul asked for David to join him and serve him as armour bearer and by playing the lyre to drive away the harmful spirit 
+
 ## 17
