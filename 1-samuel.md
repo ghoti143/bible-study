@@ -122,3 +122,17 @@
 - Saul asked Jonathan what he did and Jonathan told him about eating the honey
 - The people ransomed Jonathan so he didn't die
 - There was hard fighting against the Philistines all the days of Saul
+
+## 15
+
+- The Lord told Saul to strike Amalek because they opposed the Israelites coming out of Egypt
+- Saul spared some of them against the will of the Lord so God said to Samuel that he regrets making Saul king
+- Samuel confronta Saul for not obeying the word of the Lord
+- Saul contends that he saved the sheep to make sacrifice.  Samuel says that God delights in obeying his voice more than burnt offerings
+- Saul grabbed Samuels garment and it tore; Samuel said God has torn Israel from your hands
+- Samuel invited Agag whom Saul spared to meet him and Samuel hacked him to pieces
+
+
+## 16
+
+## 17
