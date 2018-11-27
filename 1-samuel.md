@@ -143,3 +143,26 @@
 - The Lord removed his Spirit from Saul and sent a harmful spirit to torment him; Saul asked for David to join him and serve him as armour bearer and by playing the lyre to drive away the harmful spirit 
 
 ## 17
+
+- The Philistines and Israelites were battling and Goliath comes along to fight; he is massive
+- David is sent to give food to the army; when he gets there he decides to join in battle
+- The Israelites fled from Goliath but David says he will fight the Philistine
+- David convinces Saul that he can fight because he warded off lions and bears while gaurding sheep
+- Saul clothed David in armor but David took it off because it was too heavy
+- David says to Goliath: "you come with sword and spear but I come in the name of the Lord of hosts, God of the armies of Israel"
+- David struck the Philistine on the forehead with a stone
+- David cut of Goliath's head and took it to Jerusalem
+- Saul inquires of David's lineage; David says he is the son of Jesse the Bethlehemite
+
+## 18
+
+- Jonathan's and David's souls were knit together; Jonathan made a covenant with David
+- Jonathan stipped himself of his robe, armor, sword, and belt and gave it to David
+- David was successful everywhere Saul sent him
+- Women sang: "Saul struck down thousands but David struck down ten thousands"; this made Saul jealous
+- A harmful spirit from God rushed upon Saul and he raved in his house while David was playing lyre
+- Saul tried to pin David to the wall with his spear but David evaded him twice
+- Saul gave his daughter Michal to David to try and make him a bigger target for Philistines
+- Saul requested a bride price of 100 Philistine foreskins; he did this to try and make David fall by Philistine hands
+- David paid the price and married Michal
+- Saul was David's enemy continually
