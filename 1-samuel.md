@@ -169,6 +169,15 @@
 
 ## 19
 
+- Saul wants to kill David but Jonathan convinces him not to
+- Jonathan brought David to Saul and he was in his presence once again
+- There was war again, David fought them off; a harmful spirit from the Lord came upon Saul and he attempts to kill David with a spear
+- Saul sent messengers to David's house; his wife Michal warned David and he escaped through the window
+- Saul finds a decoy image instead of David and Michal lies to Saul about the reason for her deception
+- David fled to Samuel at Ramah; Saul's messengers go there to retrieve him but the Spirit of the LORD came upon them
+- The messengers start prophesying; Saul comes and the Spirit of the LORD causes him to start propheseying also
+- Saul lay naked before Samuel all day and night; thus it is said: "Is Saul also among the prophets?"
+
 ## 20
 
 ## 21
