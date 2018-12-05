@@ -166,3 +166,11 @@
 - Saul requested a bride price of 100 Philistine foreskins; he did this to try and make David fall by Philistine hands
 - David paid the price and married Michal
 - Saul was David's enemy continually
+
+## 19
+
+## 20
+
+## 21
+
+## 22
