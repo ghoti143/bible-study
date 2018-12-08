@@ -180,6 +180,19 @@
 
 ## 20
 
+- David talks with Jonathan about why Saul hates him; they hatch a plan to figure out if Saul hates him
+- Jonathan will tell David if hos father is angry when David skips dinner
+- Jonathan makes a covenant with the house of David and David swears of his love towards Jonathan.
+- Saul is angry at Jonathan when he is told about Davids absence
+- Joanthan gave David the sign by instructing the arrow fetching boy in a certain way; David and Jonathan embraced and then parted ways
+
+
 ## 21
 
+
+
 ## 22
+
+## 23
+
+## 24
