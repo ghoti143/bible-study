@@ -189,6 +189,9 @@
 
 ## 21
 
+- David came to Nob and the priest gave him holy bread
+- One of Saul’s men: Doeg the Edomite was there; the priest gave David a sword
+- David fled from Saul and went to Achish king of Gath; he was afraid of the king so he pretended to be a madman
 
 
 ## 22
