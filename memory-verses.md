@@ -27,12 +27,13 @@ From now on, therefore, we regard no one according to the flesh. Even though we 
 Do you not know that in a race all the runners run, but only one receives the prize? So run that you may obtain it. Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. For I do not want you to be unaware, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. Nevertheless, with most of them God was not pleased, for they were overthrown in the wilderness.
 
 ## Psalm 27:1-5
-The LORD is my light and my salvation; whom shall I fear? The LORD is the stronghold of my life; of whom shall I be afraid? 
 
-When evildoers assail me to eat up my flesh, my adversaries and foes, it is they who stumble and fall. 
+The LORD is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid?
 
-Though an army encamp against me, my heart shall not fear; though war arise against me, yet I will be confident. 
+When the wicked, even mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell.
 
-One thing have I asked of the LORD, that will I seek after: that I may dwell in the house of the LORD all the days of my life, to gaze upon the beauty of the LORD and to inquire in his temple. 
+Though an host should encamp against me, my heart shall not fear: though war should rise against me, in this will I be confident.
 
-For he will hide me in his shelter in the day of trouble; he will conceal me under the cover of his tent; he will lift me high upon a rock.
+One thing have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
+
+For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
