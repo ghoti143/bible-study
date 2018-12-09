@@ -196,6 +196,15 @@
 
 ## 22
 
+- David escaped to cave of Abdullam
+- David was advised to go to Judah
+- Saul rages against his people for not informing him about Davids covenant with Jonathan; Doeg the Edomite tells Saul about the priest of Nob that sheltered and provisioned David
+- Ahemelech (Nob priest) was summoned to Saul and Saul said he would die for sheltering David
+- Ahemelech said there is none so faithful as David among Saul’s servants
+- Saul told his gaurd to kill Ahemelech and his fellow priests but the gaurd refused to do it
+- Doeg was told by Saul to kill them and he did - 85 priests and the whole town of Nob
+- One of Ahemelech’s sons escaped and ran to tell David that Saul killed all the priests
+
 ## 23
 
 ## 24
