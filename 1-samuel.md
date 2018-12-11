@@ -207,4 +207,12 @@
 
 ## 23
 
+- David fought against Philistines and saved Keilah
+- Saul heard about David's location and sought to capture him there but David escaped with his 600 men and camped in the wilderness
+- Jonathan went to David and made a covenant with him; Jonathan told David that he would be king and he would sit beside him
+- The Ziphites told Saul where David was and agreed to spy him out
+- Saul pursued David; they went on opposite sides of a mountain
+- Just before Saul cornered David, he was told about a Philistine attack
+- David escaped; the place is called the Rock of Escape
+
 ## 24
