@@ -216,3 +216,8 @@
 - David escaped; the place is called the Rock of Escape
 
 ## 24
+- Saul persues David with 3000 men
+- Saul goes into a cave to relieve himself and David has him trapped; he cuts off corner of his robe
+- David did not want to attack the Lords anointed so he called his men off
+- David shows Saul how loyal he is by telling him how he spared his life
+- Saul wept and told David he knows that he will be king; he asks David to promise not to cut off his offspring and he agrees
