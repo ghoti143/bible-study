@@ -221,3 +221,13 @@
 - David did not want to attack the Lords anointed so he called his men off
 - David shows Saul how loyal he is by telling him how he spared his life
 - Saul wept and told David he knows that he will be king; he asks David to promise not to cut off his offspring and he agrees
+
+## 25
+- Samuel dies and they bury him at Ramah
+- David met Nabal and Abigail; he was a rich shepherd at Carmel
+- David sent 10 men to greet Nabal and invite themseves for the feast
+- Nabal did not invite them to stay so David plotted to attack
+- Abigail heard of the pending attack and escaped
+- Abigail falls before David and he spared her
+- Nabal died apart from Davids sword; David did not attack
+- David took Abigail as his wife
