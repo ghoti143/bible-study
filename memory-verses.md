@@ -37,3 +37,16 @@ Though an host should encamp against me, my heart shall not fear: though war sho
 One thing have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
 
 For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
+
+Hebrews 10:1-10
+
+1 For since the law has but a shadow of the good things to come instead of the true form of these realities, it can never, by the same sacrifices that are continually offered every year, make perfect those who draw near.
+2 Otherwise, would they not have ceased to be offered, since the worshipers, having once been cleansed, would no longer have any consciousness of sins?
+3 But in these sacrifices there is a reminder of sins every year.
+4 For it is impossible for the blood of bulls and goats to take away sins.
+5 Consequently, when Christ came into the world, he said, "Sacrifices and offerings you have not desired, but a body have you prepared for me; 
+6 in burnt offerings and sin offerings you have taken no pleasure. 
+7 Then I said, 'Behold, I have come to do your will, O God, as it is written of me in the scroll of the book.'" 
+8 When he said above, "You have neither desired nor taken pleasure in sacrifices and offerings and burnt offerings and sin offerings" (these are offered according to the law),
+9 then he added, "Behold, I have come to do your will." He does away with the first in order to establish the second.
+10 And by that will we have been sanctified through the offering of the body of Jesus Christ once for all.
