@@ -231,3 +231,11 @@
 - Abigail falls before David and he spared her
 - Nabal died apart from Davids sword; David did not attack
 - David took Abigail as his wife
+
+## 26
+- Saul chased after David and David spied out his location
+- David and Abishai saw Saul lying asleep with his spear near his head; Abishai encouraged David to take his chance
+- David refused to strike the Lords anointed. God would deal with Saul however he saw fit; they took the spear and Sauls water jug though
+- David calls out Abner and the army for failing to protect Saul
+- David asks why Saul has pushed David out of the camp
+- Saul tells David to return and apologizes for acting in this way towards him
