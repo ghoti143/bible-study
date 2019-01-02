@@ -38,15 +38,21 @@ One thing have I desired of the LORD, that will I seek after; that I may dwell i
 
 For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
 
-Hebrews 10:1-10
+## Hebrews 10:1-10
 
-1 For since the law has but a shadow of the good things to come instead of the true form of these realities, it can never, by the same sacrifices that are continually offered every year, make perfect those who draw near.
-2 Otherwise, would they not have ceased to be offered, since the worshipers, having once been cleansed, would no longer have any consciousness of sins?
-3 But in these sacrifices there is a reminder of sins every year.
-4 For it is impossible for the blood of bulls and goats to take away sins.
-5 Consequently, when Christ came into the world, he said, "Sacrifices and offerings you have not desired, but a body have you prepared for me; 
-6 in burnt offerings and sin offerings you have taken no pleasure. 
-7 Then I said, 'Behold, I have come to do your will, O God, as it is written of me in the scroll of the book.'" 
-8 When he said above, "You have neither desired nor taken pleasure in sacrifices and offerings and burnt offerings and sin offerings" (these are offered according to the law),
-9 then he added, "Behold, I have come to do your will." He does away with the first in order to establish the second.
-10 And by that will we have been sanctified through the offering of the body of Jesus Christ once for all.
+For since the law has but a shadow of the good things to come instead of the true form of these realities, it can never, by the same sacrifices that are continually offered every year, make perfect those who draw near. Otherwise, would they not have ceased to be offered, since the worshipers, having once been cleansed, would no longer have any consciousness of sins? But in these sacrifices there is a reminder of sins every year. For it is impossible for the blood of bulls and goats to take away sins. Consequently, when Christ came into the world, he said, "Sacrifices and offerings you have not desired, but a body have you prepared for me; in burnt offerings and sin offerings you have taken no pleasure. Then I said, 'Behold, I have come to do your will, O God, as it is written of me in the scroll of the book.'" When he said above, "You have neither desired nor taken pleasure in sacrifices and offerings and burnt offerings and sin offerings" (these are offered according to the law), then he added, "Behold, I have come to do your will." He does away with the first in order to establish the second. And by that will we have been sanctified through the offering of the body of Jesus Christ once for all.
+
+## Galatians 3:23-29
+
+Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is no male and female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise.
+
+## Matthew 18:15-22
+
+15 "If your brother sins against you, go and tell him his fault, between you and him alone. If he listens to you, you have gained your brother.
+16 But if he does not listen, take one or two others along with you, that every charge may be established by the evidence of two or three witnesses.
+17 If he refuses to listen to them, tell it to the church. And if he refuses to listen even to the church, let him be to you as a Gentile and a tax collector.
+18 Truly, I say to you, whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven.
+19 Again I say to you, if two of you agree on earth about anything they ask, it will be done for them by my Father in heaven.
+20 For where two or three are gathered in my name, there am I among them."
+21 Then Peter came up and said to him, "Lord, how often will my brother sin against me, and I forgive him? As many as seven times?"
+22 Jesus said to him, "I do not say to you seven times, but seventy-seven times.
