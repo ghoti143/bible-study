@@ -48,11 +48,13 @@ Now before faith came, we were held captive under the law, imprisoned until the 
 
 ## Matthew 18:15-22
 
-15 "If your brother sins against you, go and tell him his fault, between you and him alone. If he listens to you, you have gained your brother.
-16 But if he does not listen, take one or two others along with you, that every charge may be established by the evidence of two or three witnesses.
-17 If he refuses to listen to them, tell it to the church. And if he refuses to listen even to the church, let him be to you as a Gentile and a tax collector.
-18 Truly, I say to you, whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven.
-19 Again I say to you, if two of you agree on earth about anything they ask, it will be done for them by my Father in heaven.
-20 For where two or three are gathered in my name, there am I among them."
-21 Then Peter came up and said to him, "Lord, how often will my brother sin against me, and I forgive him? As many as seven times?"
-22 Jesus said to him, "I do not say to you seven times, but seventy-seven times.
+"If your brother sins against you, go and tell him his fault, between you and him alone. If he listens to you, you have gained your brother. But if he does not listen, take one or two others along with you, that every charge may be established by the evidence of two or three witnesses. If he refuses to listen to them, tell it to the church. And if he refuses to listen even to the church, let him be to you as a Gentile and a tax collector. Truly, I say to you, whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. Again I say to you, if two of you agree on earth about anything they ask, it will be done for them by my Father in heaven. For where two or three are gathered in my name, there am I among them."
+
+Then Peter came up and said to him, "Lord, how often will my brother sin against me, and I forgive him? As many as seven times?"
+
+Jesus said to him, "I do not say to you seven times, but seventy-seven times.
+
+## 2 Corinthians 3:1-6
+Are we beginning to commend ourselves again? Or do we need, as some do, letters of recommendation to you, or from you? You yourselves are our letter of recommendation, written on our hearts, to be known and read by all. And you show that you are a letter from Christ delivered by us, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. 
+
+Such is the confidence that we have through Christ toward God. Not that we are sufficient in ourselves to claim anything as coming from us, but our sufficiency is from God, who has made us sufficient to be ministers of a new covenant, not of the letter but of the Spirit. For the letter kills, but the Spirit gives life.
