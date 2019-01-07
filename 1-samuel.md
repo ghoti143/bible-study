@@ -239,3 +239,23 @@
 - David calls out Abner and the army for failing to protect Saul
 - David asks why Saul has pushed David out of the camp
 - Saul tells David to return and apologizes for acting in this way towards him
+
+## 27
+
+- David fleea from Saul to the Philistines; he raids Philistine cities but lies and says that he raided Hebrew cities
+
+## 28
+
+- Saul visits a medium and summons the spirit of Samuel who tells him that God has turned from him
+
+## 29
+
+- David was kicked out of the Philistine army because the soldiers found Hebrews that loved David
+
+## 30 
+
+- Davids two wives were taken from him but he recovered them
+
+## 31
+
+- Saul is wounded by Philistine soldiers; falls on his sword; Philistines desececrate his body but his bones are recovered
