@@ -58,3 +58,11 @@ Jesus said to him, "I do not say to you seven times, but seventy-seven times.
 Are we beginning to commend ourselves again? Or do we need, as some do, letters of recommendation to you, or from you? You yourselves are our letter of recommendation, written on our hearts, to be known and read by all. And you show that you are a letter from Christ delivered by us, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. 
 
 Such is the confidence that we have through Christ toward God. Not that we are sufficient in ourselves to claim anything as coming from us, but our sufficiency is from God, who has made us sufficient to be ministers of a new covenant, not of the letter but of the Spirit. For the letter kills, but the Spirit gives life.
+
+## 2 Samuel 7:18-22
+
+18 Then King David went in and sat before the LORD and said, "Who am I, O Lord GOD, and what is my house, that you have brought me thus far?
+19 And yet this was a small thing in your eyes, O Lord GOD. You have spoken also of your servant's house for a great while to come, and this is instruction for mankind, O Lord GOD!
+20 And what more can David say to you? For you know your servant, O Lord GOD!
+21 Because of your promise, and according to your own heart, you have brought about all this greatness, to make your servant know it.
+22 Therefore you are great, O LORD God. For there is none like you, and there is no God besides you, according to all that we have heard with our ears. -
